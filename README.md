@@ -1,1 +1,7 @@
-![Image](https://github.com/user-attachments/assets/d1f980de-0c24-45a1-8473-1500bffe516b)
+<p align="center">
+  <h4 align="center"
+    </a>
+    
+![Image](https://github.com/user-attachments/assets/f3e28593-8089-4fdf-85ce-36ca1d5b8626)
+
+Cr: @оії__ii on Twitter
