@@ -4,4 +4,4 @@
     
 ![Image](https://github.com/user-attachments/assets/f3e28593-8089-4fdf-85ce-36ca1d5b8626)
 
-Cr: @оії__ii on Twitter
+Cr: @оії__ii on Twitter and pariseffingzz
